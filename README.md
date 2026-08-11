@@ -1,18 +1,10 @@
 #<div align="center">
 
 ![](https://komarev.com/ghpvc/?username=dollmaxxing&style=plastic&label=ᵔᴗᵔ&color=5bffde&base=600000)
-
-
-  <div align="center">
-  <img src="https://64.media.tumblr.com/46fa44b99cda0dbb62a4980ca30d2db4/bc785b81febafb31-8d/s1280x1920/045cf95c16fb17d1cace9e843dd73f883f6b8834.pnj"
+ 
 <p align="center">
-  <img src="https://64.media.tumblr.com/df74b0fa65f6b0a8223fe6d6dada3f05/3222e0850ef12195-48/s640x960/03adc69f8b5529ca8c77ffc28c8175d20bfddce0.pnj"
-    </div>
-    <p align="center">
-  <img src="https://64.media.tumblr.com/81c4a3cfe6b837412902c2a5f2e563e9/bc785b81febafb31-a6/s1280x1920/846c9373b54a5a40ba4133effa137f207095a386.pnj"
-
-
-
+  <img src="https://64.media.tumblr.com/f667b9203c0f185c5eb6ad9007fd14bf/f608dec9767efae8-c4/s2048x3072/e7fe80e157142f79f81528eeb3e853de7716cfae.gifv"
+    
 ᛝㅤㅤ [atabook](https://lcbsinner6.atabook.org/)
 
 > i still dont know how to make a readme      
