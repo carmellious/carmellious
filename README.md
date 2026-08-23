@@ -1,8 +1,10 @@
-#<div align="center"> 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Alegreya&weight=700&size=46&pause=1000&color=80D0DD&center=true&width=935&height=280&lines=There+is+nothing+alive+more+agonized+than+man%E2%80%93;%E2%80%93of+all+that+breathe+and+crawl+across+the+earth.)](https://git.io/typing-svg)
+<div align="center">
 
 # hello hi hi welcoem to my github
+<div align="center">
+  <img src="https://64.media.tumblr.com/d4bad4a677f077abe861b9a807e06262/4be7af509ba74965-17/s100x200/3cc53965c332c53837c7e7ba850121b07ab6926c.gifv"
 
+my name is nico or berlitz
 
 
 ![](https://komarev.com/ghpvc/?username=carmellious&style=plastic&color=18384d&label=penitence)
