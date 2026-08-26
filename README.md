@@ -23,6 +23,9 @@
 
   
 
+<div align="center">
+  <img src="https://64.media.tumblr.com/d4bad4a677f077abe861b9a807e06262/4be7af509ba74965-17/s100x200/3cc53965c332c53837c7e7ba850121b07ab6926c.gifv"
+
 
 
 
@@ -32,5 +35,8 @@
     
 ᛝㅤ[ata](https://lcbsinner6.atabook.org/)ㅤ[rentry](https://rentry.co/HELLMAlDEN/)
 
+***
 
 <img width="740" height="480" alt="image" src="https://media1.tenor.com/m/NYPYs7S4w-UAAAAd/boombox-phighting.gif" />
+
+![](https://komarev.com/ghpvc/?username=carmellious&style=flat-square&color=97BF4B&label=JAMMERS)
