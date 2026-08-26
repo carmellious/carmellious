@@ -1,5 +1,4 @@
-[![Untitled348-20260825221408.png](https://i.postimg.cc/4xcKn0hB/Untitled348-20260825221408.png)](https://postimg.cc/dhqQx46y)
-
+[![Sticker-vamoopy-Boom-High-Ten-(1).png](https://i.postimg.cc/Gp37J6nH/Sticker-vamoopy-Boom-High-Ten-(1).png)](https://postimg.cc/Sn5fmTsh)
 
 ***
 
