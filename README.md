@@ -1,4 +1,4 @@
-[![Sticker-vamoopy-Boom-High-Ten-(1).png](https://i.postimg.cc/Gp37J6nH/Sticker-vamoopy-Boom-High-Ten-(1).png)](https://postimg.cc/Sn5fmTsh)
+<img width="740" height="480" alt="image" src="https://media1.tenor.com/m/NYPYs7S4w-UAAAAd/boombox-phighting.gif" />
 
 ***
 
@@ -37,11 +37,7 @@
 
 
 
-  ‎ ‎ ‎ ‎ ‎  you can call me **nico**, **argalia**, or **berlitz**. 
-
-
-
-- EDITORS NOTE: THIS IS *STILL* A WIP!!!! SOME THINGS MIGHT BE SUBJECT TO CHANGE
+  ‎ ‎ ‎ ‎ ‎ ‎ ‎MAIN INTERESTS: **die of death, PHIGHTING!, jaadugar: a witch in mongolia**, puella magi madoka magica, terarria calamity mod, **alien stage**, nullscape, **limbus company, library of ruina + project moon in general**, beatmania IIDX, uma musume, **outlaws of robloxia**, splatoon & **zenith tower**.
 
 
     
@@ -49,6 +45,6 @@
 
 ***
 
-<img width="740" height="480" alt="image" src="https://media1.tenor.com/m/NYPYs7S4w-UAAAAd/boombox-phighting.gif" />
+[![Untitled348-20260825221408.png](https://i.postimg.cc/4xcKn0hB/Untitled348-20260825221408.png)](https://postimg.cc/dhqQx46y)
 
 ![](https://komarev.com/ghpvc/?username=carmellious&style=flat-square&color=97BF4B&label=JAMMERS)
