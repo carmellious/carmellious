@@ -11,8 +11,17 @@
   <img src="https://64.media.tumblr.com/b40d8260c05607ed412767b9d1d6b068/4be7af509ba74965-e9/s100x200/66f6384bd90aacada1bf48f33f82d1dddf96dae1.gifv"
 
 
-‎ ‎ ‎ ‎ ‎ ‎ my preferred pronouns are *STRICTLY* **he/any** (or any pronouns in general) (**PLEASE note that i reccommend masculine/gender-neutral terms instead of feminine**)
+‎ ‎ ‎ ‎ ‎ ‎ my preferred pronouns are *STRICTLY* **he/any** (or any pronouns in general) (**PLEASE note that i reccommend masculine/gender-neutral terms instead of feminine terms!**)
 
+
+
+<div align="center">
+  <img src="https://64.media.tumblr.com/dfc8539d1be6329f803006af4de2cf8b/4be7af509ba74965-75/s100x200/2d402492ea99d6aa2d9c393af046eea1dfef9f14.gifv"
+
+
+  ‎ *‎AuDHD* **INFJ**, i am a introverted + socially drained individual who often struggles to talk to people, so *please* be patient when talking 2 me!
+
+  
 
 
 
