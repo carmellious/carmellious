@@ -48,3 +48,10 @@
 [![Untitled348-20260825221408.png](https://i.postimg.cc/4xcKn0hB/Untitled348-20260825221408.png)](https://postimg.cc/dhqQx46y)
 
 ![](https://komarev.com/ghpvc/?username=carmellious&style=flat-square&color=97BF4B&label=JAMMERS)
+
+<div align="right">
+  
+[![tumblr-024bceb2f0ef36d614ea95f2b333430c-e1021d18-250.gif](https://i.postimg.cc/nz31k1fW/tumblr-024bceb2f0ef36d614ea95f2b333430c-e1021d18-250.gif)](https://postimg.cc/cg8Y1wH7)
+[![tumblr-42af8b7cbd07ada1223d5d0fa41affb4-11d4e495-250.gif](https://i.postimg.cc/Y9dx3xBZ/tumblr-42af8b7cbd07ada1223d5d0fa41affb4-11d4e495-250.gif)](https://postimg.cc/34DprmRF)
+[![tumblr-e1d0eb42d67ca31883b651fb23205a3d-43a04ccb-250-gif.webp](https://i.postimg.cc/V6KFRFcc/tumblr-e1d0eb42d67ca31883b651fb23205a3d-43a04ccb-250-gif.webp)](https://postimg.cc/ft0XWmLH)
+[![tumblr-e97ccf6063d04cc7532dd2c548be148d-5f195853-250-gif.webp](https://i.postimg.cc/wvwkVkd8/tumblr-e97ccf6063d04cc7532dd2c548be148d-5f195853-250-gif.webp)](https://postimg.cc/gX6Rc8JN)[![tumblr-f0a431a0e1693e3f24528c3e2c3dd6a7-22da9e04-250-gif.webp](https://i.postimg.cc/G3ZXSqym/tumblr-f0a431a0e1693e3f24528c3e2c3dd6a7-22da9e04-250-gif.webp)](https://postimg.cc/kDvN2Ns0)
