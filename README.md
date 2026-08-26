@@ -15,7 +15,6 @@
 ‎ ‎ ‎ ‎ ‎ ‎ my preferred pronouns are *STRICTLY* **he/any** (or any pronouns in general) (**PLEASE note that i reccommend masculine/gender-neutral terms instead of feminine**)
 
 
-![](https://komarev.com/ghpvc/?username=carmellious&style=plastic&color=18384d&label=penitence)
 
 
 
@@ -24,3 +23,6 @@
 
     
 ᛝㅤ[ata](https://lcbsinner6.atabook.org/)ㅤ[rentry](https://rentry.co/HELLMAlDEN/)
+
+
+<img width="740" height="480" alt="image" src="https://media1.tenor.com/m/NYPYs7S4w-UAAAAd/boombox-phighting.gif" />
