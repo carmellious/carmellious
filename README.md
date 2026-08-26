@@ -1,3 +1,9 @@
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nt4cen5fd4ouoqssol3gzxpdy4&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
+
+
+
+
 <img width="1340" height="480" alt="image" src="https://media1.tenor.com/m/9xf5r5weqJUAAAAC/red-hearts.gif" />
 
 ***
