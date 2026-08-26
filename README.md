@@ -1,4 +1,4 @@
-<img width="740" height="480" alt="image" src="https://media1.tenor.com/m/2NQpBGXbd80AAAAC/jaadugar-tenmaku-no-jaadugar.gif" />
+<img width="1340" height="480" alt="image" src="https://media1.tenor.com/m/9xf5r5weqJUAAAAC/red-hearts.gif" />
 
 ***
 
