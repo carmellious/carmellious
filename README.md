@@ -34,3 +34,6 @@
 
 
 <img width="740" height="480" alt="image" src="https://media1.tenor.com/m/NYPYs7S4w-UAAAAd/boombox-phighting.gif" />
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nt4cen5fd4ouoqssol3gzxpdy4&cover_image=true&theme=spotify-embed&show_offline=false&background_color=1c244a&interchange=false&profanity=false&hide_remaster=false&bar_color=9eedf7&bar_color_cover=false&mode=light)](https://github.com/kittinan/spotify-github-profile)
