@@ -24,9 +24,15 @@
   
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/d4bad4a677f077abe861b9a807e06262/4be7af509ba74965-17/s100x200/3cc53965c332c53837c7e7ba850121b07ab6926c.gifv"
+  <img src="https://64.media.tumblr.com/da852d9d8815e6c4cbdbf340c8479ee3/4be7af509ba74965-fe/s100x200/06c40e7593e9df2c2d26776b0895358f61385157.gifv"
 
 
+‎ ‎ ‎ ‎ ‎  ***Asexual*** non-binary demiboy.
+
+
+
+
+**DO NOT FUCKING INTERACT** if you are one of the following: Radqueers, kodacons, misandrists/misogynists, sexists, transmeds/transids, endogenic systems, darkshippers, homophobes, etc. i can and *will* block freely.
 
 
 - EDITORS NOTE: THIS IS *STILL* A WIP!!!! SOME THINGS MIGHT BE SUBJECT TO CHANGE
