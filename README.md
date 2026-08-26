@@ -27,12 +27,18 @@
   <img src="https://64.media.tumblr.com/da852d9d8815e6c4cbdbf340c8479ee3/4be7af509ba74965-fe/s100x200/06c40e7593e9df2c2d26776b0895358f61385157.gifv"
 
 
-‎ ‎ ‎ ‎ ‎  ***Asexual*** non-binary demiboy.
+‎ ‎ ‎ ‎ ‎***asexual*** non-binary demiboy, all slurs i say i **can** retake properly. i may act somewhat rude to others
 
 
 
 
-**DO NOT FUCKING INTERACT** if you are one of the following: Radqueers, kodacons, misandrists/misogynists, sexists, transmeds/transids, endogenic systems, darkshippers, homophobes, etc. i can and *will* block freely.
+<div align="center">
+  <img src="https://64.media.tumblr.com/cdaa5b6f233a7885d8997107a24b041f/4be7af509ba74965-93/s100x200/729f426db49001d539e5c7a3b0951aa54d4f6017.gifv"
+
+
+
+  ‎ ‎ ‎ ‎ ‎  you can call me **nico**, **argalia**, or **berlitz**. 
+
 
 
 - EDITORS NOTE: THIS IS *STILL* A WIP!!!! SOME THINGS MIGHT BE SUBJECT TO CHANGE
