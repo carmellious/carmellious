@@ -1,8 +1,6 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nt4cen5fd4ouoqssol3gzxpdy4&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=light)](https://github.com/kittinan/spotify-github-profile)
 
 
-
-<img width="1340" height="480" alt="image" src="https://media1.tenor.com/m/VAUucyt8qMQAAAAd/jaadugar-jaadugar-sitara.gif" />
+<img width="1840" height="1080" alt="image" src="https://media1.tenor.com/m/VAUucyt8qMQAAAAd/jaadugar-jaadugar-sitara.gif" />
 
 ***
 
