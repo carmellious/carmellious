@@ -41,7 +41,7 @@
 
 
 
-  ‎ ‎ ‎ ‎ ‎ ‎ ‎MAIN INTERESTS: **die of death, PHIGHTING!, jaadugar: a witch in mongolia**, **south park**, nullscape, **limbus company, library of ruina + project moon in general**, **outlaws of robloxia** & **zenith tower**.
+  ‎ ‎ ‎ ‎ ‎ ‎ ‎MAIN INTERESTS: **PHIGHTING!, jaadugar: a witch in mongolia**, **south park**, nullscape, **limbus company, library of ruina + project moon in general**, **outlaws of robloxia** & **skullgirls**.
 
 
     
